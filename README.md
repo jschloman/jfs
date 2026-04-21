@@ -5,7 +5,7 @@ I've got a few projects going.  Here's some info on what's going on.
 # Like What I Do?  Buy Me a Coffee ☕!
 No better way to start the day with a Dunkin:
 
-https://buymeacoffee.com/jayeffess
+[https://buymeacoffee.com/jayeffess](https://buymeacoffee.com/jayeffess)
 
 # Retro Arcade
 
